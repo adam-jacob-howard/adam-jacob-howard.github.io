@@ -1,5 +1,2 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Here I am typing on a keyboard. I type some letters to form words which then form sentences. I write something stupid or make a typo and then I delete it. Then I retype something else. Here I am.
+I don't know what this will be, but it will be something. I have to make something.
